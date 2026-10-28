@@ -1,1 +1,0 @@
-# Karka-ai-and-tech.
